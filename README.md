@@ -1,0 +1,8 @@
+- 👋 olá, Eu me chamo @Gers00n
+- 👀 Tenho interesse em me aprofundar em programação para mudar de carreira.
+- 🌱 Estou estudando na alura a procura de empregabilidade na area de tecnologia.
+- 💞️ Sou bom em trabalhar em grupo e com diversidade cultural.
+- 📫 Resido no estado da PB-Santa Rita. Contato: 83 988576340
+- 😄 Sou um pessoa não tanto interativa, focado, alegre e respeitoso.
+- ⚡ Trabalhei 10 anos em supermecado, passando por todos os setores inclusive TI da mesma;
+- ⚡ Formado em técnico em gestão de tecnologia da informação pelo sebrae e superior incompleto de Física pela UFPB.
